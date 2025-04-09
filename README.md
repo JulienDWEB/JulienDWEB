@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **julien.sette59@gmail.com**
 
-- 📄 Know about my experiences [I have a Bac Digital Système.](I have a Bac Digital Système.)
+- 📄 Know about my experiences [I have a Bac Digital Système.]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
